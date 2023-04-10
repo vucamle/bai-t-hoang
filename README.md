@@ -1,3 +1,0 @@
-# bai-t-hoang 
-
-qưerqr
